@@ -8,9 +8,9 @@ SystemFast es un proyecto de software y automatización con inteligencia artific
 
 Para consultas relacionadas con esta política o con el tratamiento de información personal, podés comunicarte a:
 
-**Correo electrónico:** [AGREGAR CORREO DE CONTACTO]
+**Correo electrónico:** miltonpinzone147@gmail.com
 
-**Responsable y domicilio:** [COMPLETAR DATOS DEL RESPONSABLE]
+**Responsable y domicilio:** Milton Pinzone 
 
 ## 2. Información que recopilamos
 
